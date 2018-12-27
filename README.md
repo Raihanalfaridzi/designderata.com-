@@ -1,1 +1,0 @@
-# designderata.com-
